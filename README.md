@@ -1,3 +1,2 @@
 Ariel Gauna
-Camilo Pestaña
-ariel gay
+Camilo Pestaña gay

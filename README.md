@@ -1,1 +1,3 @@
-# proyectoBD-gauna-pestana
+Ariel Gauna
+Camilo Pestaña
+ariel gay
